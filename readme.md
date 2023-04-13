@@ -5,6 +5,7 @@ Tengo 19 años y fui al Instituto Español Virgen del Pilar (IEVP) en un enfoque
 En cuanto a UTN, ingresé en 2022, por lo que este sería mi segundo año cursando acá. Esto significa que tengo un legajo desde hace un año que es 2090193.
 
 En cuanto a mí, soy de ser tranquilo e intentar evitar conflictos, con un gusto a la programación, robotica y derivadas de estas. También no soy de hablar mucho, pero esto depende de la circunstancias.
+Hice basquetbol y también Capoeira varios años atrás, aunque actualmente no estoy haciendo ningún Deporte
 Espero que pueda llevarme bien con todos ustedes y lograr llegar al final de la cursada en una sola pieza :)
 
 ![f79862d5-2bd6-4d83-a1f7-bbe6ae278177](https://user-images.githubusercontent.com/73329381/230190918-a0c6b991-d307-46ba-ac34-c3e3cb2a4577.jpg)
