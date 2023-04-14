@@ -11,3 +11,6 @@ Espero que pueda llevarme bien con todos ustedes y lograr llegar al final de la 
 ![f79862d5-2bd6-4d83-a1f7-bbe6ae278177](https://user-images.githubusercontent.com/73329381/230190918-a0c6b991-d307-46ba-ac34-c3e3cb2a4577.jpg)
 
 *Foto mía tomada el día de hoy, 5 de Abril de 2023*
+
+![Gato](https://user-images.githubusercontent.com/73329381/231934867-07e48a06-7942-45a2-b782-970a2a47848e.jpg)
+*Este es mi gato Gary acostado encima de mi ropa tirada tras un duro día. Al momento de agregar esto lo saque a la fuerza de ahí*
